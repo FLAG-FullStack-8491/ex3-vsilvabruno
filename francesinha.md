@@ -53,6 +53,10 @@
 - **fiambre**
 *1 fatia*
 
+
+CONFLICT - ARRANJA ISTO POR FAVOR
+
+
 ---
 
 ## Preparação
