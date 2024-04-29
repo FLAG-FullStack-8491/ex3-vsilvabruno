@@ -11,6 +11,8 @@
 *1 c. de chá*
 - **sal**
 *½ c. de chá*
+- **cubo de caldo de carne**
+*1 unid.*
 - **molho inglês**
 *1 c. de chá*
 - **água**
@@ -68,7 +70,7 @@ Monte a francesinha na seguinte ordem: fatia de pão, fiambre, salsicha, bife, f
 Refogue a cebola picada em azeite, adicione o alho picado, a malagueta e a folha de louro.
 
 #### Passo 5
-Acrescente o tomate, a cerveja, o vinho, a água e o molho inglês. Deixe ferver durante 10 minutos. Tempere de sal.
+Acrescente o tomate, a cerveja, o vinho, a água, o molho inglês e o caldo de carne. Deixe ferver durante 10 minutos. Tempere de sal.
 
 #### Passo 6
 Adicione o amido de milho diluído em água fria e envolva. Por último junte o vinho do Porto e deixe ferver 5 minutos. Retire do lume e triture com a varinha mágica.
