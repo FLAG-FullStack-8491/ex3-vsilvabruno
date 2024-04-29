@@ -8,7 +8,7 @@
 - **toucinho fumado**
 *100 g*
 - **sal**
-*½ c. de chá*
+*1 c. de chá*
 - **pimenta**
 *1 q.b.*
 - **colorau doce**
