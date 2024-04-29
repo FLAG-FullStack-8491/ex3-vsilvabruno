@@ -1,5 +1,7 @@
 # Tripas à moda do Porto
 
+![Tripas](https://www.pingodoce.pt/wp-content/uploads/2021/08/tripas-a-moda-do-porto.jpeg)
+
 ---
 
 ## Ingredientes
