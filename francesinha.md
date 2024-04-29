@@ -1,5 +1,7 @@
 # Francesinha
 
+![Francesinha](https://www.pingodoce.pt/wp-content/uploads/2017/09/francesinha.jpg)
+
 ---
 
 ## Ingredientes
