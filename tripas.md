@@ -63,7 +63,7 @@ Aqueça a banha num tacho e refogue a cebola e o alho com a folha de louro. Junt
 Junte um pouco de colorau e as carnes cozidas cortadas em pedaços. Adicione os enchidos cortados em rodelas e envolva. Refresque com o vinho branco.
 
 #### Passo 7
-Deixe cozinhar por cerca de 6 minutos e em seguida junte o feijão. Envolva e deixe apurar em lume brando por cerca de 20 minutos.
+Deixe cozinhar por cerca de 5 minutos e em seguida junte o feijão. Envolva e deixe apurar em lume brando por cerca de 15 minutos.
 
 #### Passo 8
 Rectifique os temperos a gosto.
