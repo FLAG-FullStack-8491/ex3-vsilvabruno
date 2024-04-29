@@ -1,5 +1,7 @@
 # Rojões à minhota
 
+![Rojoes](https://www.pingodoce.pt/wp-content/uploads/2017/03/rojoes.jpg)
+
 ---
 
 ## Ingredientes
