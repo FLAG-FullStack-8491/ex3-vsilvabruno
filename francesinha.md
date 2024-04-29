@@ -6,7 +6,7 @@
 
 ## Ingredientes
 - **alho**
-*1 dente*
+*2 dentes*
 - **vinho do Porto**
 *1 c. de chá*
 - **amido de milho**
