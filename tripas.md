@@ -19,6 +19,7 @@
 *200 g*
 - **colorau**
 *1 q.b.*
+- **ananás**
 - **cenoura**
 *150 g*
 - **dobrada**

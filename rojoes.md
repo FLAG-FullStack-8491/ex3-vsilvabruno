@@ -13,6 +13,7 @@
 *1 q.b.*
 - **colorau doce**
 *2 c. de sopa*
+- **vinho tinto**
 - **vinho branco**
 *200 ml*
 - **banha de porco**
